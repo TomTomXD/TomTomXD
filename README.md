@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TomTomXD also known as PussySlayer69
-- 👀 I’m interested in 
+- 👀 I’m interested in white women or your mum.
 - 🌱 I’m currently suffering in IT class 
-- 💞️ I’m looking to collaborate on your mom
+- WHAT COLOR IS YOUR BUGATTI?!
 - 📫 How to reach me, Don't even try to talk me brokey
 
 <!---
