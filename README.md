@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @TomTomXD also known as PussySlayer69
+- 👋 Hi, I’m @TomTomXD also known as Ligma.
 - 👀 I’m interested in white women or your mum.
 - 🌱 I’m currently suffering in IT class 
 - WHAT COLOR IS YOUR BUGATTI?!
-- 📫 How to reach me, Don't even try to talk me brokey
+- 📫 How to reach me, Don't even try to talk me brokey!
 
 <!---
 TomTomXD/TomTomXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
