@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @TomTomXD also known as Ligma.
-- 👀 I’m interested in white women.
+- 👋 Hi, I’m @TomTomXD.
+- 👀 I’m interested in money and women.
 - 🌱 I’m currently suffering in IT class 
 - WHAT COLOR IS YOUR BUGATTI?!
-- 📫 How to reach me, Don't even try to talk me brookei!
+- 📫 How to reach me? Don't even try to talk me brookei!
 
 <!---
 TomTomXD/TomTomXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
