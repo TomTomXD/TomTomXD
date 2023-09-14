@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @TomTomXD.
 - 👀 I’m interested in money and women.
-- 🌱 I’m currently suffering in IT class 
-- WHAT COLOR IS YOUR BUGATTI?!
-- 📫 How to reach me? Don't even try to talk me brookei!
+- 🌱 I’m currently suffering in IT class. 
+- 📫 How to reach me? Don't!
 
 <!---
 TomTomXD/TomTomXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
