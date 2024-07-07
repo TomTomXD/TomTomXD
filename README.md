@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TomTomXD.
 - 👀 I’m interested in money and women.
-- 🌱 I’m currently suffering in IT class. 
-- 📫 How to reach me? Don't!
+- 💻 I’m currently suffering in IT class or at work. 
+- 📧 How to reach me? Don't!
 
 <!---
 TomTomXD/TomTomXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
